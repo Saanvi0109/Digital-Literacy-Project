@@ -12,5 +12,5 @@ The challenging part was organizing the content in a way that is both informativ
 Overall, this task enhanced my understanding of digital literacy and how to effectively present information to others.
 
 ## Links
-Canva Inforgrphic Link - https://www.canva.com/design/DAHE3vxZEm4/xlxd3l7kknnIuKYbQIp8oA/edit?utm_content=DAHE3vxZEm4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
-Prezi Infographic slides link - https://www.canva.com/design/DAHE3vxZEm4/xlxd3l7kknnIuKYbQIp8oA/edit?utm_content=DAHE3vxZEm4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebuttonhttps://www.canva.com/design/DAHE7VdAWME/dF_M_hJzCdqp1EJAlid_cA/edit?utm_content=DAHE7VdAWME&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+Canva Inforgrphic Link - https://www.canva.com/design/DAHE7VdAWME/dF_M_hJzCdqp1EJAlid_cA/edit?utm_content=DAHE7VdAWME&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+Prezi Inforgraphic Link-https://prezi.com/view/0du4NNdGyKs8Ma1xoFf1/?referral_token=GcQQ0KlnB3FN
